@@ -1,4 +1,4 @@
-
+scary shawarma kiosk Scripts exclusive is the best scary shawarma kiosk Script, featuring one-hit kill and no cooldown. Safe and powerful for all
 
 
 
